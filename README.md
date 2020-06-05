@@ -1,2 +1,3 @@
 # hello-world
 I don't know how to ....
+Hi there, I really don't have the sense of security, i always want to know if my girlfriend cheats me or not. i know it's bad, but i can't help myself. i've think about it a lot, but i desperately want to know her chat content. therefor, i want to do some code and develope a app, maybe i'll giveup tomorrow, but i'll give it a try. that's both my interest to do so and the reason 
